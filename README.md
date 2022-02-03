@@ -1,1 +1,1 @@
-# ahaha-zone..github.io
+# ahaha-zone.github.io
